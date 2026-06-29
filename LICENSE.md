@@ -1,4 +1,4 @@
-# 
+# Avançado Paint.NET extensões para Mac OS | Top Paint.NET extensões para PC Windows. Com lápis graxo e gerenciamento de camadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
